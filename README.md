@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Andre
+- 👀 I’m interested in coding, anime and gaming.
+- 🌱 I’m currently learning Computer Coding
+- 💞️ I’m looking to collaborate on an E-Sports Website
+- 📫 How to reach me: Instagram-  king_tanjiro_
+- 😄 Pronouns: he/him.
+- ⚡ Fun fact: I love anime and gaming.
